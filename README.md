@@ -1,0 +1,1 @@
+# Divlərlə yığılmış blok
